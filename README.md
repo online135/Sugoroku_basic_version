@@ -1,0 +1,1 @@
+# Sugoroku_basic_version
